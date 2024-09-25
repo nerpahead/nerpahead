@@ -1,16 +1,15 @@
-## Hi there 👋
-
-<!--
-**infernalcatharsis/infernalcatharsis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![tumblr_e6c49a255d8d837aaca46023eb3139f0_07c7faec_100](https://github.com/user-attachments/assets/f26999ca-f936-4780-9bc1-4773d36b0af6)
+![tumblr_06a9660749fe699237524a5732ad1902_62c3f727_100](https://github.com/user-attachments/assets/836ea21e-2376-427c-9043-8041a9642cb1)
+![tumblr_20378dd3e7e7dc97de82594a31a75988_4bf8899c_100](https://github.com/user-attachments/assets/a45a1b5d-1bba-428d-893c-e046455b6f5e)
+![tumblr_e396c763f0428d6e6a20f8f4f91539f8_3b3af051_100](https://github.com/user-attachments/assets/d14fbf12-861a-4fa5-b38e-ca0bd1119b67)
+![tumblr_10ddae0980893d6392e62ea7fa8d2237_ef6a476a_100](https://github.com/user-attachments/assets/61e3347f-cb82-4677-b811-4568c92945b5)
+![tumblr_18d9956162370249106a887cd64d12a9_b163620c_250](https://github.com/user-attachments/assets/0cf4ab36-f080-4254-88bb-5555a676b20d)
+![tumblr_6d3c13d03f51a9915b19c4652fb145c8_965b72f0_100](https://github.com/user-attachments/assets/c6896e22-e561-4820-be81-e0ed08fa7c86)
+![tumblr_2d9bcfc98648344dc4a4f80289051ff8_c662c141_100](https://github.com/user-attachments/assets/2f179b4f-659e-4327-b1e4-5ea13659ce67)
+![tumblr_f546d65495cddea1f4807c34376a0a26_ad494936_100](https://github.com/user-attachments/assets/d7727be7-4aa0-435e-aa1d-61468c1c7227)
+![tumblr_f578c850e06756b5df3d39c759d4d151_eb7be95e_100](https://github.com/user-attachments/assets/1de507e3-55ef-4136-9d9c-eae93c193ced)
+![0754cb75](https://github.com/user-attachments/assets/9571945d-4706-4715-a80e-91b9ed12b894)
+![tumblr_fe7f1706875bac2b2d8776e9df2dee8f_bec49019_100](https://github.com/user-attachments/assets/2e4edf82-98c5-497a-bf6b-86971c777a68)
+![tumblr_e1922030f64233124161197d14b6ff49_358b3413_250](https://github.com/user-attachments/assets/59ca465e-f4e2-4ec6-8851-b2fd0f5fac10)
+![tumblr_e43a01b9787b5e6c88d9ebf8108760f8_ea6359b4_100](https://github.com/user-attachments/assets/9adad3cf-79ba-4f5d-8925-bb02762264bc)
+![tumblr_e479a44f723a529361d9a9b2631ed0a2_d66403f0_100](https://github.com/user-attachments/assets/3d3d689e-de17-43b1-8048-061acbed9edf)
