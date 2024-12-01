@@ -42,3 +42,8 @@
 ![jesse stupid](https://github.com/user-attachments/assets/6654b031-3c36-45f0-8ea5-7fe7b775cf4c)
 ![SAUL](https://github.com/user-attachments/assets/4ecd55be-37fc-4fb3-9e4b-d8ab5e80fecc)
 ![waltuh](https://github.com/user-attachments/assets/f607c23c-ff43-4626-920d-26290028cb8e)
+![tumblr_f54a4bd98959faaad3d93091ed17e52c_7c7bcb3a_100](https://github.com/user-attachments/assets/b47fc9b6-1229-4be2-81ad-d0f8f5f3d59f)
+![tumblr_38b31b5a71e4b4b56dfce18c12518f03_b8cd357c_100](https://github.com/user-attachments/assets/2ab8fb31-216f-4267-bc9e-5cbfbeaa7223)
+![tumblr_0d39c6ec34cee6614570b64510898afe_98860145_100](https://github.com/user-attachments/assets/89f7971d-22f8-4608-bf19-f6565de3b346)
+![tumblr_7e576d30942002fd9872e9ec4d7150a3_c240bac0_250](https://github.com/user-attachments/assets/7db0a13c-16ca-410c-ae62-91afcbebe885)
+![tumblr_905b853d30d0986b8d91f2ea0502cb17_7d37075f_250](https://github.com/user-attachments/assets/8a43c856-47c6-4735-a480-8a8305312301)
