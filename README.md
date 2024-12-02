@@ -67,7 +67,6 @@
 ![hs1](https://github.com/user-attachments/assets/6477ed17-7f82-4ef2-9290-9a116fc8d15d)
 
 ![i love computers](https://github.com/user-attachments/assets/3f1f06c6-a0a1-4656-9fae-09e095162ef6)
-![i love my comouter](https://github.com/user-attachments/assets/ac1777ba-b679-4de4-82e5-0d467c4951af)
 ![brrrr](https://github.com/user-attachments/assets/ef771b64-20ae-41ed-87a9-5fc2cc9a8fe8)
 ![computery guy](https://github.com/user-attachments/assets/ae9ee510-1bab-43ba-8c98-9677a0bfd7ba)
 ![too many tabs](https://github.com/user-attachments/assets/fc0e1843-8683-4e22-ace1-0aade1ce5e12)
