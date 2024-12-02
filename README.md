@@ -65,6 +65,10 @@
 ![ii6](https://github.com/user-attachments/assets/6c3c3b2a-1890-4f29-8d71-184146fc2393)
 ![ii7](https://github.com/user-attachments/assets/75ed3453-25de-4c7e-b8dc-0da9ec67c14d)
 ![hs1](https://github.com/user-attachments/assets/6477ed17-7f82-4ef2-9290-9a116fc8d15d)
+![spooky](https://github.com/user-attachments/assets/f62af504-e015-4173-9000-f57baa162209)
+![tori](https://github.com/user-attachments/assets/4f3e4c1d-27e4-410b-99a0-a6911a05c8b6)
+![jaxx](https://github.com/user-attachments/assets/28b3d142-b034-496d-9c24-c02ff32c13e1)
+
 
 ![i love computers](https://github.com/user-attachments/assets/3f1f06c6-a0a1-4656-9fae-09e095162ef6)
 ![brrrr](https://github.com/user-attachments/assets/ef771b64-20ae-41ed-87a9-5fc2cc9a8fe8)
